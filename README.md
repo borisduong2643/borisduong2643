@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Pee Didi <not associate with the artist
+- 👋 Hi, I’m Pee Didi <not associated with the artist
 - 👀 I’m interested in ... a sick train set with a roller coaster loop.
 - 🌱 I’m currently learning ... how to love myself and reintegrate into society.
 - 💞️ I’m looking to collaborate on ... any cause because I got nothing better to do.
